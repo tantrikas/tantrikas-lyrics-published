@@ -1,5 +1,4 @@
-# let go and let god 1
-
+# Let Go and Let God Ballad
 ---
 
 ### Verse 1 *(Soft, reflective)*  
