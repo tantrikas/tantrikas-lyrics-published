@@ -1,4 +1,4 @@
-# By Divine Right
+# Divine Right
 
 **Intro**  
 *Saxophone riff* 🎷  
