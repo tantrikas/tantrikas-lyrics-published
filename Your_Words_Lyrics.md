@@ -1,7 +1,7 @@
 # 🎶 Your Words
 
 **Tempo:** ~126–128 BPM  
-**Vibe:** Dancey, Deep Bass, Funky Synths  
+**Vibe:** Dancy, Deep Bass, Funky Synths  
 
 ---
 
