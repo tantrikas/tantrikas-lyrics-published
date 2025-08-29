@@ -1,4 +1,4 @@
-# All is Perfect (Mellow Mix)
+# All is Perfect
 
 ## Lyrics
 
