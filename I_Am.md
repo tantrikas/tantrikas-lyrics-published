@@ -1,4 +1,4 @@
-# 🎵 "I AM" (Affirmation Anthem) 🎶
+# 🎵 "I AM" 🎶
 *Upbeat, bass-heavy empowerment banger – 100 BPM, Key of D Minor → F Major lift*
 
 **Style:** Think Beyoncé's "Run the World" meets gospel trap—thundering 808s, soaring vocals, and a choir that sounds like a movement.
