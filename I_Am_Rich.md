@@ -1,4 +1,4 @@
-# I Am Rich_Mellow Mix
+# I Am Rich
 
 ### [Intro – Spoken/Whispered over a soft ambient pad]
 *“I am rich… I feel rich… Wealth flows to me…”*
