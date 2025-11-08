@@ -2,7 +2,6 @@
 
 ## 🪙 Lyrics
 
-I am rich  
 I feel rich  
 Wealth flows to me  
 Prosperity surrounds me  
