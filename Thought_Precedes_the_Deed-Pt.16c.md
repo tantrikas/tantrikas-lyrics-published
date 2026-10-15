@@ -1,6 +1,4 @@
-# Thought Precedes the Deed-Pt.16
-
-*The Master Key System — Part Sixteen*
+# Thought Precedes the Deed-Pt.16c
 
 Materialization follows thought  \
 What within is clearly wrought  \
