@@ -53,7 +53,7 @@ Power grows through what we do
 Higher and higher, the spirit takes flight  \
 Out of the darkness and into the light  \
 We break through the limits, the power we claim  \
-Nothing can hold us, we honor the flame
+Nothing can hold us, we honour the flame
 
 What we gain must first be earned  \
 Compensation is returned,  \
@@ -63,7 +63,7 @@ Balance teaches how to live
 Higher and higher, the spirit takes flight  \
 Out of the darkness and into the light  \
 We break through the limits, the power we claim  \
-Nothing can hold us, we honor the flame
+Nothing can hold us, we honour the flame
 
 Gold is but a symbol shown  \
 True wealth comes from what is known  \
